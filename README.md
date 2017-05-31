@@ -1,4 +1,3 @@
 # hello-world
-test
-this is the bit about myself
-# i think this is the best update ever
+let's get funding! i'm sick of bathing in public fountains
+# was that you in my neighbor's bird bath?
